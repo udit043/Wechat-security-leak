@@ -8,3 +8,5 @@ For more information , visit -
 http://wechatindia.tumblr.com/post/98381802813/werefer
 
 http://wechatindia.tumblr.com/post/99549803808/werefer-wereward-offer-faqs
+
+But there is a security leak during this offer. I can hack into any account and steal money !!
